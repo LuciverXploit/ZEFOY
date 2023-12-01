@@ -25,7 +25,7 @@ ___
     
 </p>
 
-# IGX
+# ZEFOY TIKTOK
 
 Menambah View TikTok Dengan Cepat 1000 view per 2 menit
 Script Ini Adalah Script Terlarang
